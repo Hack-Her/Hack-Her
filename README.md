@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **I'm a ISC2 candidate and I'm enrolled ISC2 foundational course that is certified cybersecurity(CC) self paced training programme currently.**
 
-- 📫 How to reach me **nayanofficial2097@gmail.com**
+- 📫 How to reach me **nayan.tode.work@gmail.com**
 
 - ⚡ Fun fact **I have alot of sarcasm.**
 
